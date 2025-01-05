@@ -117,5 +117,5 @@ This was my first big project so there are lot of things to improve upon
 
 ## Contact 📞
 
-#### If you have any doubt or want to contribute feel free to email me or hit me up on mohammeddaniyaalullahkhan@gmail.com
+#### If you have any doubt or want to contribute feel free to email me or hit me up on [LinkedIn](linkedin.com/in/daniyaalullah-khan-mohammed-70043620b)
 
